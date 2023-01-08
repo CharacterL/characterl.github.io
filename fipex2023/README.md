@@ -1,1 +1,0 @@
-# ferdiansyah.github.io
